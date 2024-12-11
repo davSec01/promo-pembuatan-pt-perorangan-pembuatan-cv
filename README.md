@@ -1,5 +1,7 @@
 # promo-pembuatan-pt-perorangan-pembuatan-cv
 
+![Promo LegalKita](https://bek.link/thumbs/20241211-101825_Gambar%20WhatsApp%202024-10-25%20pukul%2010.14.41_6a3bb6dc.jpg)
+
 # ✨ Promo Akhir Tahun LegalKita! ✨
 
 **Buat perusahaan impian Anda dengan biaya lebih hemat!**
