@@ -1,6 +1,6 @@
 # promo-pembuatan-pt-perorangan-pembuatan-cv
 
-![Promo LegalKita](https://bek.link/thumbs/20241211-101825_Gambar%20WhatsApp%202024-10-25%20pukul%2010.14.41_6a3bb6dc.jpg)
+![Promo LegalKita](https://legalkita.bek.link/thumbs/20241211-113146_KENAPA%20PRIT%20PENTING%20(Konten%20Instagram).jpg)
 
 # ✨ Promo Akhir Tahun LegalKita! ✨
 
